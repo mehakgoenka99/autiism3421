@@ -1,4 +1,4 @@
-**Top 10 occupational therapy activities for autism child **
+**Top 10 occupational therapy activities for autism child**
 
 The vibrant world of childhood, sadly, isn't always bright for every child. For those diagnosed with Autism Spectrum Disorder (ASD), navigating daily life can present unique challenges. This is where the gentle light of Occupational therapy for autism shines forth, revealing a path towards independence and empowered living.
 
